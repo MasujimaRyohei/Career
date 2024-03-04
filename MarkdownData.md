@@ -79,7 +79,7 @@ Adobe系のソフトを使い、映像編集とWeb広告の作成を行う。
 
 ## 2021年7月
 
-個人事業主となる。屋号Begrad。HPは https://begrad-official.studio.site
+個人事業主となる。屋号Begrad。HPは https://begrad.jp
 
 ## 2022年2月
 
